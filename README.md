@@ -11,4 +11,4 @@ Você pode entrar em contato comigo 📫
 
 @kimberlyalura
 
-![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fgifer.com%2Fpt%2FLPi4&psig=AOvVaw2QH0TBsd_ECKaYAO6kWkMp&ust=1716505141582000&source=images&cd=vfe&opi=89978449&ved=0CA8QjRxqFwoTCOCYxIuuooYDFQAAAAAdAAAAABAl)
+![5Tz](https://github.com/kdss160/kdss160/assets/169860234/ca0872c4-b713-4022-886f-821d32a010c9)
